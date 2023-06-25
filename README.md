@@ -1,1 +1,1 @@
-Réplique de twitter réalisé a 4 pendant 2 semaines à la web@cadémie.
+Replica of twitter made by a group of 4 people during 2 weeks at the web@cadémie
